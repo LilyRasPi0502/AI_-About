@@ -1,6 +1,7 @@
 # About the conditions of use(關於使用規則)
 ## Legal Issues(法律問題)
 ***本人無意觸犯相關法律，若當事人覺得此次作品違法本人將自行刪除***
+[致敬](https://youtu.be/wzfYRddlB6M?si=uCbXjQUN6jLZaXEt)
 
 因應[中華民國刑法 第 220 條](https://law.moj.gov.tw/LawClass/LawSingle.aspx?pcode=C0000001&flno=220)：
 ```
